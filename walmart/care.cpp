@@ -1,2 +1,2 @@
-We have exciting stuffs, beacuse christmas is on it's way!
+Exciting stuffs are available, beacuse christmas is on it's way!
 
